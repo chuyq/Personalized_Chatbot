@@ -1,1 +1,1 @@
-
+The Myers-Briggs Type Indicator (MBTI) is a personality assessment tool that categorizes people into 16 types based on four key preferences: where they focus their energy (Extraversion or Introversion), how they gather information (Sensing or Intuition), how they make decisions (Thinking or Feeling), and how they approach life (Judging or Perceiving). Developed by Isabel Briggs Myers and Katharine Cook Briggs, the MBTI is widely used for personal development, career planning, and improving communication.
